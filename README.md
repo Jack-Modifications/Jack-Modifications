@@ -23,15 +23,3 @@ Are you looking for a Developer who makes Textures EUP, Car Liveries, Scripts, M
  ➼ FiveM / Server Support
 
  ➼ MUCH MORE
-
-Don't believe that I make unique assets, check them out yourself:
-
-https://youtu.be/cgH7cAO-dU8 | Increased Fire Rate & Recoil 
-
-|
-
-https://youtu.be/c8gGlKdaW60  | Gator Towing Script 
-
-|
-
-https://www.youtube.com/watch?v=kcGyUOUke4w&ab_channel=JM  | Vehicle Keybinds 
